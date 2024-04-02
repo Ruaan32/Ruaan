@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Raj Chandanshive. 
+- 👋 Hi, I’m Rushikesh. 
 - 👀 I’m interested in Learning through creation..! 
 - 🌱 I’m currently learning and applying my knowledge too ..! 
 - 📫 How to reach me on : 
